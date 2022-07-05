@@ -1,1 +1,1 @@
-# Proyecto-de-Investigacion-Aplicada
+# Proyecto de Investigacion Aplicada
